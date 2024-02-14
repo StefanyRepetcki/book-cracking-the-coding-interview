@@ -73,4 +73,4 @@
 ## No Trabalho
 
 - Estabeleça uma linha do tempo para seus objetivos.
-- Mantenha um bom relacionamento com colegas de
+- Mantenha um bom relacionamento com colegas de trabalho.
